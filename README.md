@@ -1,2 +1,1 @@
-# Saya-V2
-EU NÃO AGUENTO MAIS PORRA.
+
